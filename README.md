@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bensonmam
+- 👋 Hi, I’m Evo aka Bensonmam
 - 👀 I’m interested in $HOME
 - 🌱 I’m currently learning @UNIVERSE
 - 💞️ I’m looking to collaborate on $WORLD
