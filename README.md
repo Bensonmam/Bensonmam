@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Evo aka Bensonmam
+- 👋 Hi, I’m Evo aka @Bensonmam
 - 👀 I’m interested in $HOME
-- 🌱 I’m currently learning @UNIVERSE
+- 🌱 I’m currently learning $UNIVERSE
 - 💞️ I’m looking to collaborate on $WORLD
 - 📫 How to reach me $MAIL
 - 😄 Pronouns: $WHAT
